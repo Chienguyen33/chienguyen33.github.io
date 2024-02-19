@@ -1,1 +1,1 @@
-this is file
+Hi, my name's Chie 
